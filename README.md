@@ -1,2 +1,3 @@
 # NGG-SA-MP
 FREE FOR U SELLER
+PASSWORD : lsrp-in.ga
